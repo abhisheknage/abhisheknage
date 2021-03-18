@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **abhishek.nage@gmail.com**
 
-- ⚡ Fun fact **I have an identical twin (he's the evil twin).**
+- ⚡ Fun fact **I have an identical twin (he's most definitely the evil one).**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
